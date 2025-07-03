@@ -1,5 +1,5 @@
 
-## <p align="center">*°:⋆ₓₒ<sub>You'll never be mine, ah, but you've got my eyes...</sub></p>
+## ![pix](https://scft.carrd.co/assets/images/gallery05/697b2c59.png?v=ac36d485) <p align="center">*°:⋆ₓₒ<sub>You'll never be mine, ah, but you've got my eyes...</sub></p>
 
 <p align="center">˗ˏˋ꒰ 🍒 ꒱</p>
 
