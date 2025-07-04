@@ -36,7 +36,6 @@
 ![10c843ae](https://github.com/user-attachments/assets/a61e1952-45b3-43f8-ab9f-a3ce6fcf270a)
 ![e07d03c5](https://github.com/user-attachments/assets/4a586397-46c0-4db2-a8e4-0399b1c0507c)
 ![359c4696](https://github.com/user-attachments/assets/fa9d15a2-5d94-4ea6-a0cd-9d9e651746f1)
-![e5cba192](https://github.com/user-attachments/assets/102d6fc9-fc3e-45c8-b42b-6e5fd5cc9911)
 ![b](https://pomelo.lol/pix/blinkies/2/3/dfsyobj-0d313e39-2626-4bb8-a906-ebd90d379d35.gif)
 ![k](https://pomelo.lol/pix/blinkies/1/dumbass.gif) 
 ![o](https://i.ibb.co/7jXxRqM/tumblr-d6f56795f126aa0576cf28c9b78021e4-0d270ddd-1280.webp)
