@@ -40,6 +40,7 @@
 ![1](https://88by31.neocities.org/music/ba_p.gif)
 ![3](https://88by31.neocities.org/food/notperfect.gif)
 ![7](https://88by31.neocities.org/misc/pastelgoth.gif)
+![](https://plasticdino.net/buttons/ayeshaerotica.gif)
 ![6e883d93](https://github.com/user-attachments/assets/9b8309f5-a705-4af7-8ff6-79af32536c48)
 ![10c843ae](https://github.com/user-attachments/assets/a61e1952-45b3-43f8-ab9f-a3ce6fcf270a)
 ![e07d03c5](https://github.com/user-attachments/assets/4a586397-46c0-4db2-a8e4-0399b1c0507c)
