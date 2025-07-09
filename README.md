@@ -10,7 +10,7 @@
 ***<p align="center">ME N WHO??7???7</p>***
 <p align="center">↓</p>
 
-![0](https://i.pinimg.com/originals/55/e0/1f/55e01f93a84de7c9ab50c63e1ca5ed2e.gif)
+![0]
 
 <p align="center">︵‿︵‿୨♡୧‿︵‿︵</p>
 
