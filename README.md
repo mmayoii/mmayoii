@@ -10,7 +10,8 @@
 ***<p align="center">ME N WHO??7???7</p>***
 <p align="center">↓</p>
 
-![0]
+![Без названия648_20250709223107](https://github.com/user-attachments/assets/23659416-dace-4ab0-af49-c8d065615584)
+
 
 <p align="center">︵‿︵‿୨♡୧‿︵‿︵</p>
 
