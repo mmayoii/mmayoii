@@ -10,11 +10,11 @@
 ***<p align="center">ME N WHO??7???7</p>***
 <p align="center">↓</p>
 
-![Без названия632_20250703173212](https://github.com/user-attachments/assets/ef0b58d9-e804-456b-8b28-1f36d979d4f2)
+![0](https://i.pinimg.com/originals/55/e0/1f/55e01f93a84de7c9ab50c63e1ca5ed2e.gif)
 
 <p align="center">︵‿︵‿୨♡୧‿︵‿︵</p>
 
-### <p align="center">RANDOM(｡>﹏<)</p>
+### <p align="center">RANDOM
 
 ![bb17a841](https://github.com/user-attachments/assets/dc7ef262-8300-40ea-9530-69212f346e03)
 ![0383b620](https://github.com/user-attachments/assets/d0592b4a-05a0-41b4-b82e-d23b978e2f0c)
