@@ -1,21 +1,22 @@
 
-## ![pix](https://scft.carrd.co/assets/images/gallery05/697b2c59.png?v=ac36d485) <p align="center">*°:⋆ₓₒ<sub>You'll never be mine, ah, but you've got my eyes...</sub></p>
+## ![pix](https://mocha.crd.co/assets/images/gallery01/4352d158.gif?v=5d8aa4fd) <p align="center">.ᐟ<sub>Please, hurry, leave me, I can't breathe</sub></p>
 
-<p align="center">˗ˏˋ꒰ 🍒 ꒱</p>
-
-
+<p align="center">.ـــــــــﮩ٨ـ</p>
 
 
 
-***<p align="center">ME N WHO??7???7</p>***
-<p align="center">↓</p>
-
-![Без названия648_20250709223107](https://github.com/user-attachments/assets/23659416-dace-4ab0-af49-c8d065615584)
 
 
-<p align="center">︵‿︵‿୨♡୧‿︵‿︵</p>
+***<p align="center">ᶻ 𝗓 𐰁</p>***
 
-### <p align="center">RANDOM
+
+![гитхаб пикча](https://github.com/user-attachments/assets/2e764207-104a-4b39-be2a-f46878ecc81b)
+
+
+
+<p align="center">HehehEhhehehHHAhhahHAHA</p>
+
+
 
 ![bb17a841](https://github.com/user-attachments/assets/dc7ef262-8300-40ea-9530-69212f346e03)
 ![0383b620](https://github.com/user-attachments/assets/d0592b4a-05a0-41b4-b82e-d23b978e2f0c)
