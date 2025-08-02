@@ -1,22 +1,12 @@
 
-## ![pix](https://mocha.crd.co/assets/images/gallery01/4352d158.gif?v=5d8aa4fd) <p align="center">.ᐟ<sub>Please, hurry, leave me, I can't breathe</sub></p>
+## ![pix](https://mocha.crd.co/assets/images/gallery01/4352d158.gif?v=5d8aa4fd) <p align="center">.ᐟ<sub>Oh, your heart aortic work of art † </sub></p>
 
-<p align="center">.ـــــــــﮩ٨ـ</p>
-
-
-
-
-
-***<p align="center">ᶻ 𝗓 𐰁</p>***
-
+![](http://i11.photobucket.com/albums/a168/evelynregly/minigifs/miniinstrumento.gif) <p align="center">.ـــــــــﮩ٨ـ</p>
 
 <img width="1280" height="720" alt="Без названия648_20250803000423" src="https://github.com/user-attachments/assets/e8b2303c-40c0-4f0e-99d0-7e08e3b1939c" />
 
 
-
-
-
-<p align="center">HehehEhhehehHHAhhahHAHA</p>
+## ![](https://pixels.crd.co/assets/images/gallery02/eb638353.gif?v=29416114) <p align="center">HehehEhhehehHHAhhahHAHA</p>
 
 
 
