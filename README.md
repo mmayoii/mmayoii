@@ -10,7 +10,9 @@
 ***<p align="center">ᶻ 𝗓 𐰁</p>***
 
 
-![гитхаб пикча](https://github.com/user-attachments/assets/2e764207-104a-4b39-be2a-f46878ecc81b)
+<img width="1280" height="720" alt="Без названия648_20250803000423" src="https://github.com/user-attachments/assets/e8b2303c-40c0-4f0e-99d0-7e08e3b1939c" />
+
+
 
 
 
