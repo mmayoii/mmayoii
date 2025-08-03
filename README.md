@@ -3,7 +3,7 @@
 
 ![](http://i11.photobucket.com/albums/a168/evelynregly/minigifs/miniinstrumento.gif) <p align="center">.ـــــــــﮩ٨ـ</p>
 
-<img width="1280" height="720" alt="Без названия648_20250803000423" src="https://github.com/user-attachments/assets/e8b2303c-40c0-4f0e-99d0-7e08e3b1939c" />
+<img width="1280" height="720" alt="Без названия648_20250803192204" src="https://github.com/user-attachments/assets/9affa6ff-154c-46fa-ae6f-05dcba87b19c" />
 
 
 ## ![](https://pixels.crd.co/assets/images/gallery02/eb638353.gif?v=29416114) <p align="center">HehehEhhehehHHAhhahHAHA</p>
