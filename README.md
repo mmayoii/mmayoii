@@ -40,7 +40,6 @@
 ![359c4696](https://github.com/user-attachments/assets/fa9d15a2-5d94-4ea6-a0cd-9d9e651746f1)
 ![b](https://pomelo.lol/pix/blinkies/2/3/dfsyobj-0d313e39-2626-4bb8-a906-ebd90d379d35.gif)
 ![k](https://pomelo.lol/pix/blinkies/1/dumbass.gif) 
-![o](https://i.ibb.co/7jXxRqM/tumblr-d6f56795f126aa0576cf28c9b78021e4-0d270ddd-1280.webp)
 ![](https://64.media.tumblr.com/c9d9d690743b8cc3ab6cea6d33cb0c4d/tumblr_p8ra5roiSk1xtxh11o2_250.gif)
 ![](https://64.media.tumblr.com/61ed5ac76811ca8f0e05533e080eb62f/c74e2f70e70f2f04-33/s250x400/88150e8ff2807f37302d7ba4cca1933433eeae3e.gifv)
 ![](https://64.media.tumblr.com/2e14cae88ef17a323e216313ee8961ec/tumblr_pijfl3hakV1xpxfk5o1_250.gif)
