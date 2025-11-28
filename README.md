@@ -1,5 +1,4 @@
 
-## ![pix](https://mocha.crd.co/assets/images/gallery01/4352d158.gif?v=5d8aa4fd) 
 
 
 
